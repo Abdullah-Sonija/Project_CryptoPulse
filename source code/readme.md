@@ -1,1 +1,1 @@
-source code is private, drop a message if want the access. Thanks!
+source code is private, drop a message if you want the access. Thanks!
